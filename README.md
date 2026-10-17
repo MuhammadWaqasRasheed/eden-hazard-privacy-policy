@@ -1,0 +1,1 @@
+# eden-hazard-privacy-policy
